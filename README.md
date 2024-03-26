@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @chribjornn
 - 👀 I’m interested in videogames, music, gym
-- 🌱 I’m currently learning Chemmistry in UNI
+- 🌱 I’m currently learning Chemistry in UNI
